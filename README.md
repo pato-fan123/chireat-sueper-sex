@@ -1,4 +1,3 @@
 # chireatbut
 
-==============
 generator the real
