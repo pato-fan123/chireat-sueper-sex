@@ -57,7 +57,36 @@ Chirune was locked up in a mental institution, but even in there, he couldn't sh
 
 One day, Chirune escaped from the mental institution, and he made his way back to Ceat's home. She was alone, and she had no way to defend herself. Chirune broke into her home, and Ceat knew that this was the end.
 
-In a violent struggle, Chirune overpowered Ceat, and he killed her in a fit of rage. He then proceeded to have sex with her dead body, fulfilling his twisted and perverse desires. He was caught by the police and sentenced to life in prison, but he didn't care. All he could think about was how he and Ceat were finally together forever, in a disgusting and perverse way. The end.]]
+In a violent struggle, Chirune overpowered Ceat, and he killed her in a fit of rage. He then proceeded to have sex with her dead body, fulfilling his twisted and perverse desires. He was caught by the police and sentenced to life in prison, but he didn't care. All he could think about was how he and Ceat were finally together forever, in a disgusting and perverse way. The end.]],
+[[
+	Ceat began to explore every inch of it, using his chemical experiments to heighten every sensation.
+
+The sex began slowly, with Chirune moaning softly as Ceat's hands roamed over her body. But soon, things began to escalate, and Ceat's experiments took on a life of their own. He began to mix chemicals and pour them onto Chirune's skin, creating an intense burning sensation that sent waves of pleasure through her body.
+
+As Chirune's body began to contort in ecstasy, Ceat began to explore every inch of her with his tongue, tasting the chemicals and the sweat that dripped from her skin. He inserted strange objects into her orifices, causing her to scream in both pain and pleasure.
+
+The sex continued for hours, with Chirune and Ceat exploring every possible position and using every possible tool at their disposal. The smells and sounds of their lovemaking were indescribable, with fluids and chemicals mixing together in a grotesque symphony.
+
+At one point, Ceat used a chemical to make Chirune's genitals grow to an enormous size, causing her intense pain but also intense pleasure. He then proceeded to insert his entire body into her, causing her to scream in agony and ecstasy.
+
+The sex finally ended as the sun began to rise, with Chirune and Ceat collapsing onto the ground, panting and covered in fluids and chemicals. As they parted ways, they knew that what they had just experienced was something that could never be replicated, a night of pure, unadulterated pleasure that would stay with them forever.]],
+	[[But on this particular day, they stumbled upon a universe unlike any they had ever encountered before.
+
+This universe was dark and twisted, with a sinister aura that sent shivers down their spines. Chirune and Ceat couldn't resist exploring further, and soon found themselves in a dimly lit alleyway.
+
+Without warning, Chirune pushed Ceat against the wall and began to kiss him passionately. Their bodies entwined as they explored each other's mouths with their tongues.
+
+Things quickly escalated as Chirune's hands roamed over Ceat's body, groping and fondling him. Ceat moaned in pleasure as Chirune's fingers traced over his most sensitive areas.
+
+But things took a disturbing turn when Chirune produced a bottle of lubricant and began to apply it to Ceat's most intimate parts. With a sadistic grin on his face, Chirune plunged himself deep inside Ceat, who cried out in pain and pleasure.
+
+As they continued to have sex, Chirune and Ceat were transported to different universes. In one universe, they were in a world where everyone was made of slime, and their bodies became coated in a slimy substance as they thrust against each other.
+
+In another universe, they were in a world where gravity was reversed, and they had to cling to each other tightly to avoid floating away. Their bodies contorted in strange ways as they fought to maintain their grip on each other.
+
+The sex continued for what felt like hours, with Chirune and Ceat exploring every possible position and scenario. They even traveled to alternate versions of themselves, where they were different genders or species.
+
+Finally, exhausted and covered in sweat, Chirune and Ceat collapsed onto the ground. They lay there for what felt like an eternity, catching their breath and basking in the afterglow of their twisted and disturbing sexual encounter.]]
 }
 -- utf8 did not support stuff so i had to do it manually
 arab={'ب';'ج';'د';'ه';'و';'ز';'ح';'ط';'ي';'ك';'ل';'م';'ن';'س';'ع';'ف';'ص';'ق';'ر';'ش';'ت';'ث';'خ';'ذ';'ض';'ظ';'غ'}
