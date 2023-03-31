@@ -100,7 +100,24 @@ He used the cups to explore every inch of her body, paying special attention to 
 
 Throughout it all, Chirune was in a state of blissful euphoria, lost in the sensation of Ceat's touch and the cups' suction. She was so enraptured that she barely even noticed when Ceat brought out the other objects he had been hiding in his bag...
 
-The rest of the story is too explicit and disturbing to describe in detail. Suffice it to say that Chirune and Ceat explored every dark corner of their desires that night, and what transpired between them would have made even the most jaded of pornographers blush with shame.]]
+The rest of the story is too explicit and disturbing to describe in detail. Suffice it to say that Chirune and Ceat explored every dark corner of their desires that night, and what transpired between them would have made even the most jaded of pornographers blush with shame.]],
+[[Chirune and Ceat had always been curious about each other's bodies, but they never acted on it until one fateful night. They met in Ceat's laboratory, which was filled with strange machines and contraptions that Chirune had never seen before. Ceat was eager to show Chirune all of the interesting things he had been working on, but soon their curiosity turned into something much darker.
+
+Ceat began by strapping Chirune onto a table and inserting a long, metal rod into his urethra. The sensation was excruciatingly painful, but Chirune couldn't help but feel a strange sense of pleasure from it. Ceat noticed this and smiled wickedly, knowing he had found the perfect plaything.
+
+He turned on a nearby machine, which began to vibrate the rod inside of Chirune's urethra. The feeling was indescribably intense, and Chirune could feel himself getting closer and closer to the brink of orgasm. But just as he was about to climax, Ceat turned off the machine, leaving Chirune hanging on the edge.
+
+Ceat then moved on to the next machine, which was a large, metal contraption that looked like some kind of mechanical spider. He instructed Chirune to lie down on the floor and spread his legs, and then he positioned the machine over Chirune's genitals.
+
+The machine had eight long, metal legs that began to move up and down in a rhythmic pattern, stimulating Chirune's most sensitive areas in a way he had never felt before. But Ceat wasn't satisfied with just that; he wanted to take it further.
+
+He pulled out a large, glass cylinder filled with a thick, viscous liquid and inserted it into the machine. As the legs continued to move, the cylinder began to pump the liquid into Chirune's genitals, filling him up until he felt like he was about to burst. But Ceat didn't stop there; he continued to pump more and more of the liquid into Chirune until he was writhing in pain and pleasure.
+
+Finally, when Ceat was satisfied that Chirune couldn't take any more, he released the liquid from the machine, causing it to flood out of Chirune's body in a disgusting, sticky mess. Chirune was left lying on the ground, covered in his own bodily fluids and feeling both disgusted and strangely satisfied.
+
+The night went on like this, with Ceat using his machines in more and more depraved ways. He used a device to stretch Chirune's anus to an inhuman size, he attached electrodes to his nipples and genitals and shocked him repeatedly, and he even used a suction cup machine to stimulate Chirune's prostate until he couldn't stand it any longer.
+
+As the night drew to a close, Chirune was left feeling completely used and violated, but also strangely fulfilled. He knew that what he and Ceat had done was sick and twisted, but he couldn't help but crave more. And Ceat was more than happy to oblige.]]
 }
 -- utf8 did not support stuff so i had to do it manually
 arab={'ب';'ج';'د';'ه';'و';'ز';'ح';'ط';'ي';'ك';'ل';'م';'ن';'س';'ع';'ف';'ص';'ق';'ر';'ش';'ت';'ث';'خ';'ذ';'ض';'ظ';'غ'}
