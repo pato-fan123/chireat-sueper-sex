@@ -86,7 +86,24 @@ In another universe, they were in a world where gravity was reversed, and they h
 
 The sex continued for what felt like hours, with Chirune and Ceat exploring every possible position and scenario. They even traveled to alternate versions of themselves, where they were different genders or species.
 
-Finally, exhausted and covered in sweat, Chirune and Ceat collapsed onto the ground. They lay there for what felt like an eternity, catching their breath and basking in the afterglow of their twisted and disturbing sexual encounter.]]
+Finally, exhausted and covered in sweat, Chirune and Ceat collapsed onto the ground. They lay there for what felt like an eternity, catching their breath and basking in the afterglow of their twisted and disturbing sexual encounter.]],
+	[[Chirune and Ceat were longtime lovers, but their relationship had always been strained. Chirune had always been intrigued by the taboo, and Ceat was all too happy to indulge her darkest desires.
+
+On this particular night, Chirune was feeling particularly adventurous. She suggested that they try something new, something that would push the boundaries of their already intense relationship. Ceat was hesitant at first, but eventually agreed.
+
+As they began to undress, Chirune's eyes fell on a set of wooden cups that Ceat had been using for his recent cupping therapy sessions. A sinister grin spread across her face as she picked up one of the cups and handed it to Ceat.
+
+Without a word, Ceat placed the cup on Chirune's back and began to apply pressure. She moaned in pleasure as the suction pulled at her skin, causing her to shiver with anticipation.
+
+As the cupping therapy continued, Chirune became more and more aroused. She begged Ceat to take her, to do whatever he wanted to her. And Ceat was all too happy to oblige.
+
+What followed was a night of debauchery and depravity unlike anything Chirune had ever experienced before. Ceat used the cups in increasingly unethical and sexual ways, pulling and tugging at her flesh until it was red and raw.
+
+He used the cups to explore every inch of her body, paying special attention to her most sensitive areas. Chirune screamed in both pleasure and pain as Ceat manipulated the cups in ways that no human could ever imagine.
+
+Throughout it all, Chirune was in a state of blissful euphoria, lost in the sensation of Ceat's touch and the cups' suction. She was so enraptured that she barely even noticed when Ceat brought out the other objects he had been hiding in his bag...
+
+The rest of the story is too explicit and disturbing to describe in detail. Suffice it to say that Chirune and Ceat explored every dark corner of their desires that night, and what transpired between them would have made even the most jaded of pornographers blush with shame.]]
 }
 -- utf8 did not support stuff so i had to do it manually
 arab={'ب';'ج';'د';'ه';'و';'ز';'ح';'ط';'ي';'ك';'ل';'م';'ن';'س';'ع';'ف';'ص';'ق';'ر';'ش';'ت';'ث';'خ';'ذ';'ض';'ظ';'غ'}
