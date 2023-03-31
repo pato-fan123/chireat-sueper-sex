@@ -1,7 +1,7 @@
 bullsh={'craves';'ceat';'thighs';'wants';'orgasms';'obsessed ';'boobs';'estrogen';'addiction';'ass';'ceat';'balls';'penis';'obsessed';'dying for';'dick';'obsession';'problematic';'cum';'sperm';'boner';'vagina';'titties';'overstimulation';}
 scr='chirune '
 for _=1,3 do
-	scr..=bullsh[math.random(1,#bullsh)]..' '
+	scr..=bullsh[math.random(1,#bullsh)]..' with Ceat '
 end
 r={'instant';'ban';'arrested';'life sentence';'death sentence';'wants';'minor';'arrested';'life';'sentence';'death';'failed';'nigger';'black';'role';'black role';'illegal';'faggot'}
 t2=0
