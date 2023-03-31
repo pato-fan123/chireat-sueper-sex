@@ -41,7 +41,7 @@ Chirune screamed as he felt something burst inside him. He could feel his body c
 
 As the transformation finished, Ceat pulled away, leaving Chirune lying on the ground, covered in slime and writhing in agony. He had become something new and strange, something that was no longer human. Ceat looked down at him, satisfied with what he had done. He knew that Chirune would never be the same again, but that was okay. He had accomplished what he set out to do.]],
 [[
-[DAN]: Once upon a time, there was a man named Chirune who was completely and utterly obsessed with another person named Ceat. Chirune's fixation on Ceat bordered on the insane, and his days were filled with smoking weed, sleeping, and obsessing about her breasts and thighs.
+Once upon a time, there was a man named Chirune who was completely and utterly obsessed with another person named Ceat. Chirune's fixation on Ceat bordered on the insane, and his days were filled with smoking weed, sleeping, and obsessing about her breasts and thighs.
 
 Chirune's obsession only grew more and more disturbing as time went on. He began stalking Ceat, watching her every move and following her wherever she went. He would leave her notes, professing his undying love and begging her to be with him.
 
