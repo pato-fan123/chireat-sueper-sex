@@ -113,4 +113,8 @@ for _=1,#r*2 do
 	scr..=' '..r2()..r[math.random(1,#r)]..ruh()
 	scr=scr:sub(1,2000)
 end
-return scr
+if _G.ultraExplicit==false then
+	return scr
+else
+	return awful[math.random(1,#awful)]
+end
