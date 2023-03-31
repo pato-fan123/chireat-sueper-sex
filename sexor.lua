@@ -24,8 +24,7 @@ As the night went on, Chirune and Ceat engaged in every sexual act imaginable. T
 The night finally ended, and Chirune stumbled out of Ceat's lair, covered in slime and parasites. He felt violated and disgusted, but he couldn't deny the pleasure he had experienced. Ceat's parasites had taken over his body, and he knew he would never be the same again. 
 
 The end.]],
-[[
-Chirune and Ceat were two beings from different worlds, but that didn't stop them from getting it on. Chirune couldn't resist Ceat's tentacles and the way they wrapped around his body, pulling him closer and closer. Ceat's body was slimy and slick, which made it all the more exciting for Chirune. The two of them engaged in an activity that would make even the bravest of souls tremble with fear.
+[[Chirune and Ceat were two beings from different worlds, but that didn't stop them from getting it on. Chirune couldn't resist Ceat's tentacles and the way they wrapped around his body, pulling him closer and closer. Ceat's body was slimy and slick, which made it all the more exciting for Chirune. The two of them engaged in an activity that would make even the bravest of souls tremble with fear.
 
 Chirune started by running his fingers along Ceat's slimy tentacles, feeling the texture and sensation of each one. He couldn't help but be aroused by the way they moved and squirmed in his grasp. Ceat responded by wrapping his tentacles around Chirune's body, pulling him closer and closer until they were pressed up against each other.
 
@@ -40,8 +39,7 @@ As the two of them continued, Chirune started to feel something else happening. 
 Chirune screamed as he felt something burst inside him. He could feel his body changing, becoming something new and strange. He didn't know what he was becoming, but he knew he didn't like it. He tried to fight it, but it was no use. He was being transformed, becoming something that was no longer human.
 
 As the transformation finished, Ceat pulled away, leaving Chirune lying on the ground, covered in slime and writhing in agony. He had become something new and strange, something that was no longer human. Ceat looked down at him, satisfied with what he had done. He knew that Chirune would never be the same again, but that was okay. He had accomplished what he set out to do.]],
-[[
-Once upon a time, there was a man named Chirune who was completely and utterly obsessed with another person named Ceat. Chirune's fixation on Ceat bordered on the insane, and his days were filled with smoking weed, sleeping, and obsessing about her breasts and thighs.
+[[Once upon a time, there was a man named Chirune who was completely and utterly obsessed with another person named Ceat. Chirune's fixation on Ceat bordered on the insane, and his days were filled with smoking weed, sleeping, and obsessing about her breasts and thighs.
 
 Chirune's obsession only grew more and more disturbing as time went on. He began stalking Ceat, watching her every move and following her wherever she went. He would leave her notes, professing his undying love and begging her to be with him.
 
@@ -58,8 +56,7 @@ Chirune was locked up in a mental institution, but even in there, he couldn't sh
 One day, Chirune escaped from the mental institution, and he made his way back to Ceat's home. She was alone, and she had no way to defend herself. Chirune broke into her home, and Ceat knew that this was the end.
 
 In a violent struggle, Chirune overpowered Ceat, and he killed her in a fit of rage. He then proceeded to have sex with her dead body, fulfilling his twisted and perverse desires. He was caught by the police and sentenced to life in prison, but he didn't care. All he could think about was how he and Ceat were finally together forever, in a disgusting and perverse way. The end.]],
-[[
-	Ceat began to explore every inch of it, using his chemical experiments to heighten every sensation.
+[[Ceat began to explore every inch of it, using his chemical experiments to heighten every sensation.
 
 The sex began slowly, with Chirune moaning softly as Ceat's hands roamed over her body. But soon, things began to escalate, and Ceat's experiments took on a life of their own. He began to mix chemicals and pour them onto Chirune's skin, creating an intense burning sensation that sent waves of pleasure through her body.
 
@@ -70,7 +67,7 @@ The sex continued for hours, with Chirune and Ceat exploring every possible posi
 At one point, Ceat used a chemical to make Chirune's genitals grow to an enormous size, causing her intense pain but also intense pleasure. He then proceeded to insert his entire body into her, causing her to scream in agony and ecstasy.
 
 The sex finally ended as the sun began to rise, with Chirune and Ceat collapsing onto the ground, panting and covered in fluids and chemicals. As they parted ways, they knew that what they had just experienced was something that could never be replicated, a night of pure, unadulterated pleasure that would stay with them forever.]],
-	[[But on this particular day, they stumbled upon a universe unlike any they had ever encountered before.
+[[But on this particular day, they stumbled upon a universe unlike any they had ever encountered before.
 
 This universe was dark and twisted, with a sinister aura that sent shivers down their spines. Chirune and Ceat couldn't resist exploring further, and soon found themselves in a dimly lit alleyway.
 
@@ -87,7 +84,7 @@ In another universe, they were in a world where gravity was reversed, and they h
 The sex continued for what felt like hours, with Chirune and Ceat exploring every possible position and scenario. They even traveled to alternate versions of themselves, where they were different genders or species.
 
 Finally, exhausted and covered in sweat, Chirune and Ceat collapsed onto the ground. They lay there for what felt like an eternity, catching their breath and basking in the afterglow of their twisted and disturbing sexual encounter.]],
-	[[Chirune and Ceat were longtime lovers, but their relationship had always been strained. Chirune had always been intrigued by the taboo, and Ceat was all too happy to indulge her darkest desires.
+[[Chirune and Ceat were longtime lovers, but their relationship had always been strained. Chirune had always been intrigued by the taboo, and Ceat was all too happy to indulge her darkest desires.
 
 On this particular night, Chirune was feeling particularly adventurous. She suggested that they try something new, something that would push the boundaries of their already intense relationship. Ceat was hesitant at first, but eventually agreed.
 
